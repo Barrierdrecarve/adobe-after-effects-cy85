@@ -1,4 +1,4 @@
-# 
+# Automático Vegas Pro para PC ejecutor es el mejor Vegas Pro para PC ejecutor con mezcla y corte automático. Seguro, confiable y optimizado para el máximo rendimiento.
 
 
 
